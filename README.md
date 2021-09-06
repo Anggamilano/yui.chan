@@ -1,2 +1,8 @@
 # yui.chan
-D
+Dilarang memakai kata yaoi 
+.nsfw
+.lolicon
+.milf
+.meme
+.pertanyaanra random
+
